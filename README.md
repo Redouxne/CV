@@ -1,1 +1,2 @@
-https://www.linkedin.com/in/redouane-e-664a28255
+          Voici mon CV !! 
+N'hésitez pas à me contacter au besoin.
